@@ -1,1 +1,1 @@
-sugadinai faila
+Tik nerasyk savo vardu!
